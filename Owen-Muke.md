@@ -1,5 +1,5 @@
 
-Hey there! I'm Owen,
+🔥🔥Hey there! I'm Owen,
 <hr>
 <b>self-taught programmer</b> with a passion for writing code and building projects.<br>
 With 2 years of experience under my belt, I've embarked on a journey to explore the vast world of programming and software development.
